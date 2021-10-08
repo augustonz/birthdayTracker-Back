@@ -1,0 +1,1 @@
+Project created to ensure I never forget my friend's birthdays ever again
